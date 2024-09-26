@@ -20,7 +20,7 @@
 |Berge| Hohe Landformen|Schutz, Lebensraum            |
 |Flüsse|Süẞwasserstom |Wasserquelle|
 
-![Natur](https://play-lh.googleusercontent.com/QFK02n8y6j1bx4oUcQplNsTHO2Jp1ZKQSNfDyTI6zf2Zup6Po1CqS_lWp_UGBs6cKGc=w600-h300-pc0xffffff-pd)
+![Natur](https://picsum.photos/200/250)
 
 
 ---
